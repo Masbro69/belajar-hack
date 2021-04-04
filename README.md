@@ -1,2 +1,2 @@
-# belajar-hack
+# Hacker ganteng
 Saya ingin membantu teman
